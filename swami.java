@@ -1,3 +1,0 @@
-swami
-anna
-tns
